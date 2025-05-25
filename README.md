@@ -1,4 +1,4 @@
-#### Hi there 
+#### Hi!
 #### I'm on a journey to be a tech-savvy🧑🏾‍💻
 #### I enjoy spending time with my family 🧑‍🧑‍🧒 and jogging 🏃🏿‍♂️
 
