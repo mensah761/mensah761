@@ -1,6 +1,6 @@
 #### Hi!
 #### I'm on a journey to be a tech-savvy🧑🏾‍💻
-#### I enjoy spending time with my family 🧑‍🧑‍🧒 and jogging 🏃🏿‍♂️
+#### I enjoy spending time with my family 🧑‍🧑‍🧒 and I like jogging 🏃🏿‍♂️
 
 <!--
 **mensah761/mensah761** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
