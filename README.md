@@ -1,5 +1,5 @@
 #### Hi!
-#### I'm on a journey to be a tech-savvy🧑🏾‍💻
+#### I'm on a mission to be tech-savvy🧑🏾‍💻
 #### I enjoy spending time with my family 🧑‍🧑‍🧒 and I like jogging 🏃🏿‍♂️
 
 <!--
